@@ -6,4 +6,4 @@
 - 🌱 I’m currently learning Pyton📗.
 - 📫 How to reach me: Flower#6969.
 - 📺 Anime is the best.
-- 🎮 Favorite game: osu! (if you playing https://osu.ppy.sh/users/16751479 follow me 😉)
+- 🎮 Favorite game: osu! (if you playing [osu! profile](https://osu.ppy.sh/users/16751479) follow me 😉)
