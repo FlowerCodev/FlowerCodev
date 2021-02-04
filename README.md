@@ -8,6 +8,6 @@
 
 - 🔭 I’m currently working on C# Program And my latest version of my JS bot.
 - 🌱 I’m currently learning Python📗.
-- 📫 How to reach me: Flower#6969.
+- 📫 How to reach me: Flower#1111.
 - 📺 Anime is the best.
 - 🎮 Favorite game: osu! (if you playing osu! follow me [profile](https://osu.ppy.sh/users/16751479) 😉)
