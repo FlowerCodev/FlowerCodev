@@ -1,6 +1,6 @@
 
 
-[![160744959694494596](https://ibb.co/tc33WCq)](https://github.com/sw-yx?tab=repositories)
+[![160744959694494596](https://i.ibb.co/CvWWT0b/ef555bf639a11bd65ae3065263788bba.png)](https://github.com/FlowerIsGenius?tab=repositories)
 
 ### Hi there 👋
 
