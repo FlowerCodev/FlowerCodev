@@ -5,3 +5,4 @@
 - 🔭 I’m currently working on C# Program And my lest version of my JS bot.
 - 🌱 I’m currently learning Pyton📗.
 - 📫 How to reach me: Flower#6969.
+- 📺 Anime is the best.
