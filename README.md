@@ -10,4 +10,3 @@
 - 🌱 I’m currently learning Python📗.
 - 📫 How to reach me: Flower#1111.
 - 📺 Anime is the best.
-- 🎮 Favorite game: osu! (if you playing osu! follow me [profile](https://osu.ppy.sh/users/16751479) 😉)
